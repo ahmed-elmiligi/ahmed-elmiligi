@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 👾 I'm information technology  student want's to be that person that he doesn't know him yet<br><br>want to learn things and share what i learn<br>
 
 
